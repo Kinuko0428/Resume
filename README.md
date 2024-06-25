@@ -9,3 +9,8 @@
 [輔大經濟系](https://www.economics.fju.edu.tw/)
 
 <hr>
+
+### 個人經歷
+- 輔仁大學經濟系第11屆經非昔比讀書會幹部
+  
+  ![](https://i.imgur.com/W7jM8MU.png)
